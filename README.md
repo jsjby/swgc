@@ -4,3 +4,7 @@
 ## 香港科技大学
 
 【报名截止：暂无】[工学院](https://mp.weixin.qq.com/s/Yub1OpBQy17EJmjKrQ7BSA)
+
+## 香港中文大学
+
+【报名截止：4.22】[工程学院](https://hkpfs.erg.cuhk.edu.hk/about-us)
